@@ -1,1 +1,1 @@
-# MagangNala10-Ditya-Electronic
+# MagangNala10-Ditya-Electrical
